@@ -10,4 +10,4 @@ What you can study in it includes:
 
 Try it yourself and see what you can learn from it.
 
-Follow me [Instagram](https://www.instagram.com/proprgrmmr) [https://www.twitter.com](https://www.twitter.com/proprgrmmr) [Facebook](https://web.facebook.com/pro.programmer.14).
+Follow me [Instagram](https://www.instagram.com/proprgrmmr) [Twitter](https://www.twitter.com/proprgrmmr) [Facebook](https://web.facebook.com/pro.programmer.14).
